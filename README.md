@@ -11,5 +11,6 @@ Meu nome é Nayara Dantas
 nayaradantas@prof.educacao.sp.gov.br
 
 @nayaraddantas
+![](https://tenor.com/pt-PT/view/adventure-time-jake-dog-cartoon-network-cute-gif-17872324)
 
 ![descrição do GIF](link GIF do Tenor)
